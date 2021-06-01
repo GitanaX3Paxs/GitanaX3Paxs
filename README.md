@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @GitanaX3Paxs
-- 👀 I’m interested in learning how to become ONE
-- 🌱 I’m currently learning GitHub
-- 💞️ I’m looking to collaborate on not sure yet!
+- 👋 Hi, I’m Brandy @GitanaX3Paxs
+- 👀 I’m interested in learning how to become one with the universe!
+- 🌱 I’m currently learning EVERYTHING
+- 💞️ I’m looking to collaborate on fixing things!!!
 - 📫 How to reach me paquita5yemas@gmail.com
 
 <!---
